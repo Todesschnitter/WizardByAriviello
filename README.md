@@ -1,4 +1,4 @@
-# Operating Systems Direct official/No Official (Trusted) Download Links
+# Links de download oficiais diretos/não oficiais (confiáveis) de sistemas operacionais
 
 
 ## Windows
